@@ -6,4 +6,4 @@ Actividad individual #1
 
 Docente: Walter Hugo Arboleda Mazo
 
-Universidad Nacional de Colombia - Medellí
+Universidad Nacional de Colombia - Medellín
